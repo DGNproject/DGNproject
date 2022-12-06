@@ -1,0 +1,6 @@
+- I’m @DGNproject
+- How to reach me
+- Discord     DegeN#1111
+- Instagram   @DegenerateNamedN
+- Youtube     n00beh1
+- TTV         n00beh1
